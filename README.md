@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 self introduction
 
 <!--
 **thz0000/thz0000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+📑目前就讀中央大學管院某系二年級
+
+🥰興趣愛好：看小說、打排球、玩手游、聽音樂、看綜藝
+
+🙈懶癌+拖延症末期患者
+
+✉️有人想知道我的gmail的話可以到我的文章留言XD
+
+📣歡迎各位來找我聊天~出去玩也可以考慮一下哈哈哈
